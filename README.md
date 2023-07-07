@@ -1,0 +1,2 @@
+# Afridi
+AwAra KhAn
